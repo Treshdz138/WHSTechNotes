@@ -15,3 +15,6 @@ When using any coding language, accuracy and precision is very important because
 
 # October 4, 2024
 In todays time, computer science is very important and very common due to it being used for almost everything. Especially on everyones day to day items like phones, every app is made from computer science. Even cars have computer science used in them because new cars have new technologies that can help prevent accidents, or even make routes for someones destination. It helps me every day to contact my parents if I need to discuss something with them, or also helps me look at the weather for the day and even at certain times of the day.
+
+# October 10, 2024
+The computer science career I researched is a software architect, which is the main person who organizes any software including the structure of it and etc. The main programming language they use is python and java, the minimum education needed to apply for this position is a bachelors in software engineering or anything in computer science as a bachelor. After 7-9 average years for experience as a software engineer, then reaching the position of software architect, there is nowhere else after that. This job relates to my future since I want to have a profession with both engineering, and computer science and start a business with this that can hopefully reach state wide, then nationwide. 
