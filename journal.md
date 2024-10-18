@@ -7,7 +7,7 @@ Hi Ms. Whitby this is for the example you discussed with us during 5th period
 # September 12, 2024
  My personal only challenges were that I mis-spelled the username for the google form you assigned to us with our github usernames. Other than that I would think the problems for other students is maybe the fact they have a VPN that could be blocking you from accessing the git hub usernames, or maybe they mis spelled their usernames on the form too like I did.
 
- # September 19, 2024
+ # September 19, 2024Progra
  According to Ms. Whitby, this is a free week...
 
 # September 26, 2024
@@ -18,3 +18,6 @@ In todays time, computer science is very important and very common due to it bei
 
 # October 10, 2024
 The computer science career I researched is a software architect, which is the main person who organizes any software including the structure of it and etc. The main programming language they use is python and java, the minimum education needed to apply for this position is a bachelors in software engineering or anything in computer science as a bachelor. After 7-9 average years for experience as a software engineer, then reaching the position of software architect, there is nowhere else after that. This job relates to my future since I want to have a profession with both engineering, and computer science and start a business with this that can hopefully reach state wide, then nationwide. 
+
+# October 18, 2024
+Programming helps anyone with problem solving skills be taking normally large time consuming tasks, then taking that and turning it into smaller parts making it more completable parts. Even if someone doesn't pursue a programming career in life, the logical thinking and the creativity stays with that person and helps them for whatever they might wanna do. By learning programming, you take advice from others that want to collaborate and guide ypu which is how programming/ coding helps enhance collaboration. It can help with even business careered people, since it could help them to think outside of the box to find a new pitch or idea and maybe helps them work with their work teams. 
