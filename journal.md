@@ -27,3 +27,8 @@ AI is a very strong asset to our day and age since it can help look and answer q
 
 # November 1, 2024
 Probably the main positive impact I see in using technology for the elections could be using it to collect data and counting all votes to get an accurate poll. It can show where the votes were coming from to use as data for what states side with which political side. The negative thing I would assume, is that people could try to tamper with the votes by hacking into the system breaking into the cyber security system to rig it. 
+
+# November 4, 2024
+In today and all of the time, privacy is very important especially when publishing anything online now. It's crucial because if not careful, it can be seen by many people that might have bad intentions or disgusting ones. One step to keep github accounts safe and personal information is by keeping it private if you have personal info linked into your github. I've never leaked out my own personal info because I'm not clumsy to not only harm my own info and personal stuff, but maybe even my familys buisness. The main thing to keep balance is only you and that one person to know the information to login, passwords, etc. 
+
+# November 14, 2024
