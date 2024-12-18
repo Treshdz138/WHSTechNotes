@@ -43,3 +43,6 @@ I have recently found out that the STAAR tests are now graded by artificial inte
 
 # December 13, 2024
 The word brain rot in my opinion means an overused term from todays social medias standpoint. Mainly by people younger than highschool freshman is what comes to mind when i think of the words "Brain Rot." It doesn't bother my personal mental well being and neither does social media. I do think it can be both neagtive and positive because it can inflict cetain positive or negative thoughts to people and without telling the whole story because on the internet, there can't always be a true story or be told all the info. For the younger generation I think it is possible to limit it or balance out the interaction of seeing "brain rot" related things because there are parental controls and on mpst social media there is a button to say "I am not interested in this related stuff" to command the apps and software to not show anything similar to whatever the post or video was. 
+
+# December 18, 2024
+I am very much looking towards winter break, and my birthday (January 3rd.)
