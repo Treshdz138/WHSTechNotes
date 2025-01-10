@@ -46,3 +46,6 @@ The word brain rot in my opinion means an overused term from todays social media
 
 # December 18, 2024
 I am very much looking towards winter break, and my birthday (January 3rd.)
+
+# January 10, 2025
+I love the self pace we have for this class where I can learn how to use unity at my own pace and no deadlines and where I can essentially make whatever I want. I'm more excited to learn anything in general, it can hopefully help later on with my career to expand my portfolio. I don't mind any certifications, it'll just help me grow what I can do for later on in my life and career. 
