@@ -55,3 +55,11 @@ I wasn't at school while we watched the moneyball movie, Ms. Whitby said I was e
 
 # January 22, 2025
 With the recent Tiktok ban that only last a couple of hours, it could've still greatly affected tech companies with connections towards tiktom because that means the greatest social media platform in todays age isn't being used by many people in the United States, no usage of the companys tech, means no money. The reason the government banned the app involves a invasion of  privacy because it can tap into the users phone and wifi. I would say if I had a career at TikTok I would try to figure out a way to limit the connection to the app required to connect to the wifi. 
+
+# January 27, 2025
+| Name     | Car | Mistake |
+| :------- | :-- | :------ |
+| Jimmy    |Honda Civic|Drilled oil in gas tank|
+| Kayla    |GMC Sirerra|fixed wrong problem|
+| Bart     |Toyota Corolla|left stains on carpet|
+| Harrison |Subaru Forester|left the oil cap off|
