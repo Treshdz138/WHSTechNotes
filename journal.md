@@ -63,3 +63,6 @@ With the recent Tiktok ban that only last a couple of hours, it could've still g
 | Kayla    |GMC Sirerra|fixed wrong problem|
 | Bart     |Toyota Corolla|left stains on carpet|
 | Harrison |Subaru Forester|left the oil cap off|
+
+# February 4, 2025
+Computer science contriubutes to aviation traveling or anything related to aviation by having such things as sensors with the flying object or plane, help with providing clear communication between airports and the plane or authorities. Computer science also protects planes while in flight from people trying to hack or jam the system and helps it with alsmost everything the plane has. 
