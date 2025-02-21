@@ -69,3 +69,6 @@ Computer science contriubutes to aviation traveling or anything related to aviat
 
 # February 11, 2025
 The main feature in my app for a team would be to identify the opponents past year plays and match them with one our own teams plays that'll work best to go against. Another feature would be a play maker like an ai generator that makes plays to counter each team in the league. The algorithms would be very crucial to the structure of any code. A dash board for the app would consist of plays for each team including updates about any injured player lists, or even upcoming trades for whatever team you're playing next.
+
+# February 18, 2025
+The most interesting thing I learned from last week was probably how to fix a hole in the wall, it was ery interesting and not as complicated as I thought it would be. 
