@@ -72,3 +72,6 @@ The main feature in my app for a team would be to identify the opponents past ye
 
 # February 18, 2025
 The most interesting thing I learned from last week was probably how to fix a hole in the wall, it was ery interesting and not as complicated as I thought it would be. 
+
+# March 17, 2025
+The most technology I used was just on my phone and through social media, playing games like clash royale or talking to family and my friends, or also looking and learning about some robots tesla has in the development proccess at the moment. My phone does for sure help me "stay in the know" of whats happening during these times and get inspiration and ideas for what I'd like to make for this class or in engineering.
