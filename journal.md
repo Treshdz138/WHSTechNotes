@@ -75,3 +75,9 @@ The most interesting thing I learned from last week was probably how to fix a ho
 
 # March 17, 2025
 The most technology I used was just on my phone and through social media, playing games like clash royale or talking to family and my friends, or also looking and learning about some robots tesla has in the development proccess at the moment. My phone does for sure help me "stay in the know" of whats happening during these times and get inspiration and ideas for what I'd like to make for this class or in engineering.
+
+# March 24, 2025
+I think AI predictions and calculations for march madness can be accurate but even when it comes to the end of march madness it could be risky since people are willing to do anything to help benefit their own team. Social media can alter the audiences view on march madness or on any sports, increasin amounts of love or hatred towards certain players or teams spreading rumors or truths about anyone involved on the teams. 
+
+# March 31, 2025
+I'm doing pretty good, mentally, emotionally, and physically. For me the most stressful part is maintaining straight a's for the school so I can get into a good college. For me I like to studym hard work pays off for me, how I like to stay motivated is wanting to have a big house when I graduate from college with no college debt as well. Once I'm able to comfortably travel to monaco casually I'll know I've made it in my life.
