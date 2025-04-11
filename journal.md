@@ -81,3 +81,6 @@ I think AI predictions and calculations for march madness can be accurate but ev
 
 # March 31, 2025
 I'm doing pretty good, mentally, emotionally, and physically. For me the most stressful part is maintaining straight a's for the school so I can get into a good college. For me I like to studym hard work pays off for me, how I like to stay motivated is wanting to have a big house when I graduate from college with no college debt as well. Once I'm able to comfortably travel to monaco casually I'll know I've made it in my life.
+
+# April 11, 2025
+I think AI could help students study ro the state standard tests, but to an extent because now even the STAAR tests are graded by AI. And AI isn't 100% guarenteed full proof but it's almost there, hopefully soon. I think the most used feature of AI that would be used is giving a more simplified version of answers or even "short n sweet" summaries to help kids memorized materials for the STAAR tests. 
