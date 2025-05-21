@@ -87,3 +87,12 @@ I think AI could help students study ro the state standard tests, but to an exte
 
 # April 17, 2025
 I think the banning of phones in school is good and bad in different topics. 20 years ago, how often was it to have a school shooter anywhere in the United States... Now, very sadly, there are school shootings that aren't "once in a million" like it used to be. My parents even said they don't remember ever hearing of any school shooting from when they weree in highschool in the 2000's, and my family's from the town next to Uvalde that nbo one knew that place existed, till recently. If students have their phones they can tell the parents on the spot before the school even tells their kids parents. In any emergency the kids tell their parents right away and that is a huge pro of kids having thei phones with them during school. A pro of taking away phones does help raise attention for class work and would help raise grades. I would be worried about everyones safety if the school takes away our devices because there are times were people make threats in our school on social media platforms, and the problem is fixed in a matter of minutes because a student brings immediate attention to the school or district and that student has their pgone with them during the normal school day. 
+
+# May 5, 2025
+I think it depends on if the people are chosen specifically or if they're just random people bevause if I get to choose who it is then the 100 people are absolutely winning. I don't think this is an important topic unless planet of the apes was real but it is something fun and interesting that proves how fast and big something get get word of mouth but virtually. 
+
+# May 12, 2025, 
+This chal;lenge about destropying property that isn't yours is absurd and quite dumb... That's not only destroying something thats not yours but also something that someone spent hours to make and is what helps others when needed. People use those devices to keep up their grades and damaging it is just damaging their own personal record. 
+
+# May 19, 2025
+I'm very excited for the summer because now that I drive and since I also have a good job, I can go out and even go places with some extent of flexibility. I'm gonna have a lot of fun and also do a lot to enjoy my highschool years which are considered the best years of someones life. I can't wait to get closer to becoming a college student/ adult.
