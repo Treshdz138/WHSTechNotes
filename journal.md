@@ -96,3 +96,6 @@ This chal;lenge about destropying property that isn't yours is absurd and quite 
 
 # May 19, 2025
 I'm very excited for the summer because now that I drive and since I also have a good job, I can go out and even go places with some extent of flexibility. I'm gonna have a lot of fun and also do a lot to enjoy my highschool years which are considered the best years of someones life. I can't wait to get closer to becoming a college student/ adult.
+
+# September 2, 2025
+So far the phone law isn't that bad as people make it seem to be, I'm adjusting to it farely well I only have a couple of wishes like were that we could have them during our designated lunchs and during passing period to listen to music. And that it's not possible to text or call my parents/family if something were to bring danger towards us and potential harm. 
