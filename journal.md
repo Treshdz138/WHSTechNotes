@@ -99,3 +99,6 @@ I'm very excited for the summer because now that I drive and since I also have a
 
 # September 2, 2025
 So far the phone law isn't that bad as people make it seem to be, I'm adjusting to it farely well I only have a couple of wishes like were that we could have them during our designated lunchs and during passing period to listen to music. And that it's not possible to text or call my parents/family if something were to bring danger towards us and potential harm. 
+
+# September 8, 2025
+For me I want to go to college for business and I know that computer science can be very useful in this field because it can give data driven answers to help any brand/company. I've seen it even at my jobwhere they ask AI or try to use computer science to help with work and help simplify it. My dad says that at his job they insist in using AI or computer science related things to help shorten the time to do certain things for daily work life.It especially improves communication or moving around schedules for me at work because everything I need for work is on an app. My schedule, if I wanted to trade shifts with someone, if I neeed to find a certain product what aisle it's in, how many are left, and even what sub section or shelf it's on. Computer science is the future in my opinion.
