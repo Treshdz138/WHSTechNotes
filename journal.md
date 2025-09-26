@@ -105,3 +105,6 @@ For me I want to go to college for business and I know that computer science can
 
 # September 16, 2025
 My idea for this AI challenge presented by the white house is an app/ device powered by AI that can track active trains or even cargo boats or ships. Reason is that there are 214,000 active railroads in the United States used by trains that cause major traffic. It doesn't help anyones day because you can't track it or anything. What if there was an app that was able to not only track all the trains on a map showing them where they are at that exact moment. But it would use AI to show new routes to avoid thatv traffic from that railroad crossing. Same also applies with cargo ships or boats in even the state of Louisiana. 
+
+# September 26, 2025
+I personally don't think a virtual job type of thing is good in terms of people actually working in ikea would make them loose their jobs. I think it is very interesting to look into and it's pretty cool but I personally don't think it's like very promising compared to working in the Ikea store itself.
