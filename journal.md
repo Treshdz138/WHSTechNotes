@@ -108,3 +108,20 @@ My idea for this AI challenge presented by the white house is an app/ device pow
 
 # September 26, 2025
 I personally don't think a virtual job type of thing is good in terms of people actually working in ikea would make them loose their jobs. I think it is very interesting to look into and it's pretty cool but I personally don't think it's like very promising compared to working in the Ikea store itself.
+
+# September 30, 2025
+The phrase 6 7 is in my opinion an odd "cultural norm" that the younger people are saying and have been saying for the past couple of months. The phrase us originally from a rappers song where he ends the verse saying "six seveeeeeen" and then later after the song was published at an AAU basketball game one of the more popular players made a layup, a bystander makes the comment "six seveeeeen" and with a weird hand gesture. It is used for honestly anything, even if it means getting a laugh out of a person or friend. I personally don't like this phrase because there is no meaning to it other than a rapper said this in their song... I'm personally annoyed of it, especially for it going on for so long now.
+
+# October 6, 2025 
+If I were in charge of our school there would be some changes in certain thats accessible on school grounds. First the phone ban would stay, but the times of day they can be used is during a students designated lunch, during passing periods/ bathroom breaks, or even shutdown days this phone ban wouldn't be enforced. No AI's would be permitted unless it was one developed by the school itself and monitored by them too. I think this would lower the disliking feeling students have of going to school and the ai reduction could help people with studying increasing grades, and lower the cheating usage.
+
+# October 14, 2025
+"Design a single-page educational poster explaining photosynthesis for 7th-grade science students. The poster must feature a central, detailed diagram of a plant leaf and cross-section, clearly labeling the inputs ($\text{Water}$ and $\text{Carbon Dioxide}$) and outputs ($\text{Oxygen}$ and $\text{Glucose}$). Include a separate, smaller section detailing the role of chlorophyll and how it absorbs sunlight. Use a modern, bright, and illustrated design style with a green and blue color palette. Ensure all scientific terms are bolded and the overall look is clean, professional, and easy to read from a distance." This prompt designed by canva ai is personally very effective and does cut time needed to make by so very much. This came out just as I had expected.
+
+# October 20, 2025
+
+| Name     | Class | Seat |
+| :------- | :---- | :--- |
+| Franklin |    2nd   |   91A   |
+| Hardeep  |    3rd   |   61F   |
+| Marla    |    1st   |   35B   |
