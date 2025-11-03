@@ -125,3 +125,12 @@ If I were in charge of our school there would be some changes in certain thats a
 | Franklin |    2nd   |   91A   |
 | Hardeep  |    3rd   |   61F   |
 | Marla    |    1st   |   35B   |
+
+# October 27, 2025
+
+
+| Name    | Main dish        | Dessert             |
+| :-------| :----            | :---                |
+| Fiona   |Gado Gado         |Creme Brulee         |
+| Tobias  |Shrimp ceviche    |French apple cake    |
+| Leanne  |Beef wellington   |Rasberry Tiramisu    |
