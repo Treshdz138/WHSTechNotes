@@ -134,3 +134,7 @@ If I were in charge of our school there would be some changes in certain thats a
 | Fiona   |Gado Gado         |Creme Brulee         |
 | Tobias  |Shrimp ceviche    |French apple cake    |
 | Leanne  |Beef wellington   |Rasberry Tiramisu    |
+
+# January 6, 2026
+My break was pretty good and quite productive as well, I worked a lot so using that mobile app on my phone was using technology. Also trying to use my phone to sports bet was a usage of technology and that was fun and I jst turned 18, so hanging out with my girlfriend/ friends for my birthday was capable because I used technology to contact them.
+
