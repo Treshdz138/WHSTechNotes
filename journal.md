@@ -138,3 +138,10 @@ If I were in charge of our school there would be some changes in certain thats a
 # January 6, 2026
 My break was pretty good and quite productive as well, I worked a lot so using that mobile app on my phone was using technology. Also trying to use my phone to sports bet was a usage of technology and that was fun and I jst turned 18, so hanging out with my girlfriend/ friends for my birthday was capable because I used technology to contact them.
 
+# January 12, 2026
+The startup of Autcraft was by Stuart Duncan in the year 2013 that the mnain purpose was to help restrict bullying, harassment, and any sort of violence within an online presence. It's main audience were other autistic children who wanted to play on a minecraft server like Stuart Duncans offspring. This was a main issue in the minecraft gaming community because it was known that public servers weren't very restricted when it came to online violence and trying to prevent it in any way. So this special server was in a way a safehaven for those with disabilities. If creators were to ignore things like this, it could very much get out of control soon where no one can maintain egative energy where it shouldn't be. 
+
+# January 20, 2026
+Tehcnology isn't just something people use to easily find answers for homeworl, it can be used to help spread important messages to others involving real problems in the world even to this day. Even an example right now in our very own school, a protest is being organized through social media to protest again the current ICE admiistration and their kidnappings. It can be used today to help spread the word to anyone who is interested in the topic upon hand. It is important that people utilize this but also don't take advantage of it for a bad cause like spreading rumors. But it many cases, it can be the deciding factor to find the truth of a situation loike with cameras, photos, social media messages, regular phone messages, etc...
+
+# January 29, 2026
