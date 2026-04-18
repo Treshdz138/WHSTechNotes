@@ -143,5 +143,13 @@ The startup of Autcraft was by Stuart Duncan in the year 2013 that the mnain pur
 
 # January 20, 2026
 Tehcnology isn't just something people use to easily find answers for homeworl, it can be used to help spread important messages to others involving real problems in the world even to this day. Even an example right now in our very own school, a protest is being organized through social media to protest again the current ICE admiistration and their kidnappings. It can be used today to help spread the word to anyone who is interested in the topic upon hand. It is important that people utilize this but also don't take advantage of it for a bad cause like spreading rumors. But it many cases, it can be the deciding factor to find the truth of a situation loike with cameras, photos, social media messages, regular phone messages, etc...
-
+ 
 # January 29, 2026
+
+# March 23, 2026
+For me I advanced certain teams to advance based on prior year experiences during march madness, my bracket continued to "bust" after the 2nd round because apparently powerhouses aren't supposed to be overpowered and get absolutely destroyed by a 16 seed team... I think the only way someone could have a CHANCE, at the perfect bracket is if the POPE HIMSELF, blesses it and with the whole vatican...
+
+# March 30, 2026 
+I don't personally understand how Michigan made it this far, I thought they'd be out at the elite 8, becuase of their opponents havinbg way more march expereince compared to them so it really "threw me off guard."
+
+# April 9, 2026 
