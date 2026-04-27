@@ -153,3 +153,13 @@ For me I advanced certain teams to advance based on prior year experiences durin
 I don't personally understand how Michigan made it this far, I thought they'd be out at the elite 8, becuase of their opponents havinbg way more march expereince compared to them so it really "threw me off guard."
 
 # April 9, 2026 
+I don't think the humans would be able to convince the AI robots to let them go. This isn't the same as the similar situations in movies, I personally don't know if humans would be able to convince machines that are more intelligent than them by far, especially with how low iq the common person has in the United States. 
+
+# April 13, 2026
+I think with our current technological capabilities, it's possible and "on the table" but of course there are many dangers and since our technology isn't still fully reinforced. The toilet broke...
+
+# April 20, 2026
+To me, it does and doesn't matter in some areas if the msuic is made by AI or humans. If it's made by humans, it's original or authentic, knowing that a real person can create those notes with their own voices is amazing and beautiful in the thought itself. But if it's made by AI, it does save everyone time on creating the music itself, but it also now opens the doors for concerts being taken away or decresing in shows because people can just use AI in creating that voice and molding it into within their own visions. 
+
+# April 27, 2026 
+GO SPURS GO first of all, for me I was just watching game 4 of round one in the NBA finals Spurs v. Trailblaizers and around the end of the 4th quarter they announced that no team in NBA history has ever been losing by 15+ points at halftime, then proceed to win that same game by 15+ points as well. They announced that the usage of AI was how they found this information out. I personally thought that was pretty cool and it was very fun and such a good game itself. Spurs are gonna win it all this year and I wanna go a plaoff game, GO SPURS GO!
